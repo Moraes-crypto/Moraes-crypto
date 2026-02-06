@@ -1,16 +1,29 @@
-## Hi there 👋
+# óla pessoal!!!
 
-<!--
-**Moraes-crypto/Moraes-crypto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Me chamo **Kauã Moraes da Silva**, tenho 15 anos estou no 2° do ensino medio do SESI Vila das Mercês-402. Estou no curso do SENAI de ADS(desenvolvimento de sistemas), SENAI do Ipiranga. 
 
-Here are some ideas to get you started:
+# gosto de: #
+* Volêi
+* Futebol
+* Futebol Americano
+* Jogar videogame
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**TORCEDOR:** 
+
+
+![MemfhisDepayGIF](https://github.com/user-attachments/assets/49704917-ed68-4342-acf8-7f15bedfa4bc)
+
+**COMIDA FAVORITA**:
+Lasanha
+
+**ANIMAL FAVORITO**:
+Cachorro
+
+![MichiMichillioGIF](https://github.com/user-attachments/assets/991d4dcb-5ce7-41eb-97c3-af611480df3e)
+
+![NubNubCatGIF](https://github.com/user-attachments/assets/66188507-c4a3-4c54-b108-fcc8f300311d)
+
+
+
+
+
