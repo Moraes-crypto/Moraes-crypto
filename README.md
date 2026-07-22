@@ -9,8 +9,6 @@ Me chamo **Kauã Moraes da Silva**, tenho 15 anos estou no 2° do ensino medio d
 
 ![MemfhisDepayGIF](https://github.com/user-attachments/assets/49704917-ed68-4342-acf8-7f15bedfa4bc)
 
-**COMIDA FAVORITA**:
-Lasanha
-
-**ANIMAL FAVORITO**:
-Cachorro
+**ESPORTE:**
+1.Volêi
+2.Futebol
